@@ -43,7 +43,7 @@ Download **Smart Study Planner** from the App Store:
 
 ---
 
-## Visit Our Website
+## Visit My Website
 
 For more details about our apps, updates, and support, please visit our website:
 
